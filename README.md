@@ -1,0 +1,2 @@
+# PARABOLAKU_FUNGSI-KUADRAT
+Matematika
